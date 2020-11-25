@@ -1,4 +1,4 @@
-# MIni-Project-File-3rd-Year
+# MIni-Project-File:3rd-Year
 
 Here is the link given below of my video for the project
 
